@@ -1,1 +1,0 @@
-# SIH-2-Alumni-CodeCrafters
